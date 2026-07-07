@@ -36,9 +36,9 @@ I also believe in **continuous learning** and am currently diving deeper into **
 ---
 
 ### 💬 Get In Touch
-- **LinkedIn**: [Muhammad Amjad](https://www.linkedin.com/in/your-linkedin-profile)
-- **GitHub**: [Your GitHub Profile](https://github.com/your-username)
-- **Email**: your.email@example.com
+- **LinkedIn**: [Muhammad Amjad](https://www.linkedin.com/in/muhammadamjadofficial)
+- **GitHub**: [Your GitHub Profile](https://github.com/AmjadOfficial)
+- **Email**: muhammadamjad866@gmail.com
 
 ---
 
